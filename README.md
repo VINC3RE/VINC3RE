@@ -1,4 +1,4 @@
-![image alt](Screenshot_20250414_170147_Facebook.jpg)
+![image alt](@VINCERE DESIGN DO NOT USE OR STEAL.jpg)
 # 💫 About Me:
 ❙  @  𝙀𝙉𝙕𝙊  ✷ 𝕳.e + Hīm<br>🇨🇳🇯🇵  &  🥩 ❞ 𝓡.ot is mÿ <br>𝐁𝚒𝚐𝚐𝚎𝚜𝐓  ╱ ♰  𝘿𝙀𝙎𝙄𝙍𝙀. ꨄ<br><br>& 𝐃𝐄𝐒𝐈𝐆𝐍𝐄𝐑.  /  𝐂𝐎𝐏𝐘, 𝐒𝐓𝐄𝐀𝐋, 𝐑𝐄𝐏𝐎𝐒𝐓, <br>𝐈𝐍𝐒𝐏𝐎 𝐈𝐒 𝐏𝐑𝐎𝐇𝐈𝐁𝐈𝐓𝐄𝐃 !!  【ᗩᒪᗴᖇT】
 
